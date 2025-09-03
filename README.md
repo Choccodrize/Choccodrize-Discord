@@ -1,2 +1,3 @@
-# MikuMikuWorld-ProsekaR
-MikuMikuWorld For ProsekaRush
+# Infinite Discord Invite Server
+Discord server
+https://discord.gg/FYMB5wgYDa 
